@@ -1,1 +1,0 @@
-# sp2273-template
